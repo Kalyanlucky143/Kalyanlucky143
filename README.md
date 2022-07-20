@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kalyanlucky143
-- 👀 I’m interested in sleepingzzzzzzzz
+- 👀 I’m interested in sleepinggggggggggg
 - 🌱 I’m currently learning nothing
 - 📫 How to reach me  ?              kallu muskoni gattiga talchuko!
 
